@@ -1,3 +1,0 @@
-# quest
-new begin
-uyikuyiuy
